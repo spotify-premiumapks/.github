@@ -6,7 +6,7 @@ In this article, we will explain what Spotify Premium APK is. We will also talk 
 
 ## ⏬🌐🌐📌⬇ [DOWNLOAD Spotify Premium APK](https://menupreis.de/spotify-premium-apk/) ⬇📌🌐🌐⏬
 
-![nekopoi](https://github.com/user-attachments/assets/9fd53ff8-414b-4c0e-9c27-df70e4bf2a5b)
+![Spotify Premium APK](https://github.com/spotify-premiumapks/.github/blob/6e91eaca0d757c412e4c5469cc9b1a2b44aa39bf/spotify%20cost.jpg)
 
 ## ⏬🌐🌐📌⬇ [DOWNLOAD Spotify Premium APK](https://menupreis.de/spotify-premium-apk/) ⬇📌🌐🌐⏬
 
